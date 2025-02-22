@@ -3,7 +3,8 @@ Atualmente cursando o Bacharelado em Ciência da Computação, buscando sempre i
 
 ## Conecte-se comigo
 
-[![image](https://github.com/user-attachments/assets/42baf4e0-e279-4999-b223-e8022296b2e6)](https://www.linkedin.com/in/arthur-silva-a50719327/)   [![image](https://github.com/user-attachments/assets/1d23e843-5738-425e-8502-4b72c5efdede)](https://github.com/ArthurS-T)
+[![image](https://github.com/user-attachments/assets/c18488b6-37ef-4192-96bf-06993637d24e)](https://www.linkedin.com/in/arthur-silva-a50719327/) 
+[![image](https://github.com/user-attachments/assets/7b012546-2696-458d-a39c-269d43511cb3)](https://github.com/ArthurS-T)
 
 ## Um pouco sobre mim:
 
@@ -14,5 +15,6 @@ Atualmente cursando o Bacharelado em Ciência da Computação, buscando sempre i
 
   
     ### Que a força esteja convosco... e até o nosso próximo encontro
-![image](https://github.com/user-attachments/assets/d28fccf6-cc27-47eb-b145-e5c8139cd0b9)
+![image](https://github.com/user-attachments/assets/b1bac92b-197d-48e4-ac44-d45a439c4227)
+
 
